@@ -1,1 +1,1 @@
-This is only for education purposes use in ypur own risk
+This is only for education purposes use in your own risk
